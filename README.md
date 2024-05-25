@@ -9,4 +9,5 @@
 
 @Leticia.quintinoo 
 
-![](https://media1.tenor.com/m/USRbnqtNTKMAAAAd/study.gif)
+
+![](https://media1.tenor.com/m/qvde3FkdjUcAAAAC/masha-i-medved-back-to-school.gif)
