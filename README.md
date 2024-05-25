@@ -2,7 +2,7 @@
   
 - Sou linda
 - Estudiosa 📖
-- Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos no[Alura](https://www.alura.com.br)
+- Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos no [Alura](https://www.alura.com.br)
 
 ### Você entrar em contado comigo 📬
 00001103987999sp@al.educacao.sp.gov.br
